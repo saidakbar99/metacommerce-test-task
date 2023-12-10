@@ -1,2 +1,2 @@
-saidakbar.dev@gmail.com
-telegram - @saidakbarzz
+# saidakbar.dev@gmail.com
+# telegram - @saidakbarzz
