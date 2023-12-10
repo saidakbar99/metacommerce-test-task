@@ -1,1 +1,2 @@
-# metacommerce-test-task
+saidakbar.dev@gmail.com
+telegram - @saidakbarzz
